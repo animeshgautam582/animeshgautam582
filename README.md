@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning AI/ML<br>📝 I regularly write articles on https://medium.com/@animeshgautam582<br>💬 Ask me about AL/ML<br>📫 How to reach me animeshgautam582@gmail.com<br>⚡ Fun fact I like to make friends :D
+🌱 I’m currently learning Web3<br>📝 I regularly write articles on https://medium.com/@animeshgautam582<br>💬 Ask me about Web3<br>📫 How to reach me animeshgautam582@gmail.com<br>⚡ Fun fact I like to make friends :D
 
 
 ## 🌐 Socials:
